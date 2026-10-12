@@ -1,0 +1,2 @@
+# premium-martial-arts-001-martial-arts-training-log-be
+Stop guessing if you're ready for your next belt test—this Notion template tracks every technique, sparring session, and training hour so you know exactly when you've earned the right to level up.  The Martial Arts Training Log &amp; Belt Tracker — Notion Template is the only tool that combines a daily training log with an automated belt progression sy
